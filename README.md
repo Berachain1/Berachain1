@@ -52,13 +52,6 @@
 
 ## 📫 Contact
 
-📡 Email me if it matters: buyandrun@pm.me  
-🦇 Twitter (sometimes): [](https://twitter.com/buyandrun_eth)
-
----
-
-## 📫 Contact
-
 📧 Email: `Sayektititirahayu@gmail.com`  
 🐦 New X: [@Annisacryptoone](https://x.com/Annisacryptoone)
 
