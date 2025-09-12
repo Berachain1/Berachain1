@@ -4,7 +4,7 @@
 
 [![Telegram](https://img.shields.io/static/v1?label=Telegram&labelColor=0000FF&message=Channel&color=00FF00&style=for-the-badge&logo=Telegram&logoColor=white)](https://t.me/AIRDROPRSIND123)
 
-[![X](https://img.shields.io/static/v1?label=X&labelColor=000000&message=Follow&color=0000FF&style=for-the-badge&logo=X&logoColor=white)](https://x.com/Annisacryptoone)
+[![X](https://img.shields.io/static/v1?label=X&labelColor=000000&message=Follow&color=0000FF&style=for-the-badge&logo=X&logoColor=white)](https://x.com/Niss_010)
 
 [![Contact Me](https://img.shields.io/static/v1?label=Contact&labelColor=00FF00&message=Telegram&color=0000FF&style=for-the-badge&logo=Telegram&logoColor=white)](https://t.me/Annisaazzahra123)
 
@@ -53,7 +53,7 @@
 ## 📫 Contact
 
 📧 Email: `Sayektititirahayu@gmail.com`  
-🐦 New X: [@Annisacryptoone](https://x.com/Annisacryptoone)
+🐦 New X: [@Niss_010](https://x.com/Niss_010)
 
 ---
 
